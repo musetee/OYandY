@@ -1,2 +1,0 @@
-# OYandY
-days of OYandY
